@@ -1,6 +1,6 @@
 ## Dewa Mahendra - Back End .NET Developer, Indonesia
 ## Portofolio Link :
-### https://mahendraputra21.github.io-intro/intro/
+### https://mahendraputra21.github.io/intro/
 
 ## Reach out to me via any of the following social links.
 
