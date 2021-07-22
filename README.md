@@ -6,6 +6,8 @@
 
 ## Reach out to me via any of the following social links.
 
+### Medium : https://medium.com/@dewamahendra
+
 ### LinkedIn : https://www.linkedin.com/in/dewa-mahendra-92137688/
 
 ### Instagram : https://www.instagram.com/mahendraputra21/
